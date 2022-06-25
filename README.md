@@ -17,4 +17,4 @@ so this is just a revive cuz we need it back
 5 - **we love shadow mario!!!!!**
 
 # mayo
-if ur reading this then lmao im reviving this and you cant stop it
+if ur reading this then lmao im reviving this and jsa cannot be banned :trollface:
