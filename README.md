@@ -1,3 +1,4 @@
+![image](https://user-images.githubusercontent.com/106634902/175755987-7220e757-e4e3-4dca-bdb7-d90e510a2835.png)
 # PSYCHDISCUSSIONS
 its back baby
 
