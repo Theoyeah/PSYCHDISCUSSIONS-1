@@ -10,11 +10,11 @@ so this is just a revive cuz we need it back
 
 2 - no bad slurs (r slur, n slur, you get the deal)
 
-3 - dave and bambi is allowed by me
+3 -
 
-4 -                                     
+4 - dave and bambi is allowed by me
 
-5 - we love shadow mario!!!!!
+5 - **we love shadow mario!!!!!**
 
 # mayo
 if ur reading this then lmao im reviving this and you cant stop it
