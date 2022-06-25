@@ -5,6 +5,8 @@ its back baby
 # context
 mayo has probably deleted psychdiscussions (https://github.com/mayo78/PSYCHDISCUSSIONS) but we do not know
 so this is just a revive cuz we need it back
+![image](https://user-images.githubusercontent.com/106634902/175756004-d1bda180-38e9-4ebd-b4ce-aa6c8e9ff96f.png)
+dont know, so this is made.
 
 # rules
 1 - dont be rude
